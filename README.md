@@ -1,7 +1,7 @@
 ⃟✯нιѕℓ яєροяτєяѕ οƒƒιϲιαℓ™🔥🪄
 
-- Powerd By >>> HISL Reporting Owner: Mr.White Shadow🎭᭄
-                            HISL Main Admin: Mr.Anonymous🎭᭄
+<img src="https://telegra.ph/file/bb11573dec4489520ed71.jpg" alt="nz" width="350"/>
+</p>
 
 𝐆𝐑𝐎𝐔𝐏 𝐎𝐏𝐄𝐍𝐒 𝐀𝐓
 
@@ -23,3 +23,6 @@ Checking by
 - ⚠️𝚅𝚒𝚌𝚎 𝙲𝚊𝚙𝚝𝚊𝚒𝚗: 𝙼𝚁.𝙲𝚈𝙱𝙴𝚁 𝚁𝙴𝙲𝙾𝙽
 
 ↳ 𝐑𝐄𝐒𝐏𝐄𝐂𝐓 𝐀𝐋𝐋 𝐀𝐃𝐌𝐈𝐍𝐒
+
+Powerd By >>> HISL Reporting Owner: Mr.White Shadow🎭᭄
+                            HISL Main Admin: Mr.Anonymous🎭᭄
